@@ -4,8 +4,7 @@
 - 👯 I’m looking to collaborate on ... anything
 - 🤔 I’m looking for help with ... coding
 - 💬 Ask me about ... life
-- 📫 How to reach me: ... here
-- 😄 Pronouns: ... learning...
+- 📫 How to reach me: ... twitter, facebook. I'm around. 😄
 - ⚡ Fun fact: ...
 
 <!--
